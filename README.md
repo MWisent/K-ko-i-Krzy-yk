@@ -1,1 +1,1 @@
-# K-ko-i-Krzy-yk
+# Kolko i krzyżyk
